@@ -13,4 +13,4 @@ Voor mijn werk was ik met een collega naar een beurs in Tokyo gestuurd. Normaal 
 
 Mijn collega Michel, Een echte verkoper, strak in het pak, geschoren, haar netjes in model. We hadden niet veel met elkaar te maken op de zaak. Hij vroeg mij opeens of ik iets anders wilde doen. Dit was mijn eerste keer in Japan dus ik baalde al dat ik alleen maar de hal en het hotel had gezien. Hij stelde voor om iets te gaan eten. En ik zeg dat ik dan wel iets wil doen wat alleen daar kan.
 
- 
+
