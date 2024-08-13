@@ -1,8 +1,8 @@
 Wat je wil
 
-Voor mijn werk was ik met een collega naar een beurs in Tokyo gestuurd. Normaal blijf ik op kantoor bij dit soort dingen maar het management had het idee dat de Japanners graag een technisch iemand zagen. Dat was dus niet waar. Na de tweede dag mij vervelen gingen we weer naar buiten de hitte in, terug naar het hotel.
+Het werk had ons naar een beurs in Tokyo gestuurd. Al twee dagen zat ik op een kruk in de hal. Buiten veertig graden binnen mensen die ik niet kon verstaan en jetlag. Normaal blijf ik op kantoor bij dit soort dingen maar het management had het idee dat de Japanners graag een technisch iemand zagen. Dat was dus niet waar. Het ontcijferen van het Japans op onze eigen stand was na een dag al niet leuk meer.
 
-Mijn collega Michel, Een echte verkoper, strak in het pak, geschoren, haar netjes in model. We hadden niet veel met elkaar te maken op de zaak. Hij vroeg mij opeens of ik iets anders wilde doen. Dit was mijn eerste keer in Japan dus ik baalde al dat ik alleen maar de hal en het hotel had gezien. Hij stelde voor om iets te gaan eten. En ik zeg dat ik dan wel iets wil doen wat alleen daar kon.
+Mijn collega Michel had ook niet veel te doen. Een echte verkoper, strak in het pak, geschoren, haar netjes in model. Op de zaak hadden we niet veel met elkaar te maken en hier hadden we niets om over te praten. Op de tweede dag, onderweg naar buiten vroeg hij opeens of ik zin had iets anders te doen. De dag ervoor waren we direct naar onze eigen kamers in het hotel gegaan. "Iets wat we alleen hier kunnen doen." Zei ik. Michiel zei dat hij wel wat wist en nam mij mee. Eerst een stuk met de metro en toen de hete steegjes van Tokyo in.
 
 Het restaurant was in een smal steegje. Echt Japans. Smal en we moesten in een rij wachtten tot we naar binnen mochten. Als een auto langs wilde moest de hele rij een stukje opzij schuifelen. Om binnen te komen moesten we een trap op en dan op de eerste verdieping naar binnen. Het was een klein zaaltje waar mensen zaten te eten. Gewoon aan tafel op stoelen, niet op de grond.
 
