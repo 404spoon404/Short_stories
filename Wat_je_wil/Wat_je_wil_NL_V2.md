@@ -4,6 +4,8 @@ Het werk had ons naar een beurs in Tokyo gestuurd. Al twee dagen zat ik op een k
 
 Mijn collega Michel had ook niet veel te doen. Een echte verkoper, strak in het pak, geschoren, haar netjes in model. Op de zaak hadden we niet veel met elkaar te maken en hier hadden we niets om over te praten. Op de tweede dag, onderweg naar buiten vroeg hij opeens of ik zin had iets anders te doen. De dag ervoor waren we direct naar onze eigen kamers in het hotel gegaan. "Iets wat we alleen hier kunnen doen." Zei ik. Michiel zei dat hij wel wat wist en nam mij mee. Eerst een stuk met de metro en toen de hete steegjes van Tokyo in.
 
+In een van die steegjes stond een rij mensen. 
+
 Het restaurant was in een smal steegje. Echt Japans. Smal en we moesten in een rij wachtten tot we naar binnen mochten. Als een auto langs wilde moest de hele rij een stukje opzij schuifelen. Om binnen te komen moesten we een trap op en dan op de eerste verdieping naar binnen. Het was een klein zaaltje waar mensen zaten te eten. Gewoon aan tafel op stoelen, niet op de grond.
 
 Eén muur was een machine. Wit met ronde hoeken. In het midden zat een soort luik waar de bediening dienbladen met eten en drinken pakte om naar de tafels te brengen. Het was net of de keuken een grote Amerikaanse koelkast was. Een man bracht ons naar een tafeltje en zodra we zaten stond iemand met een dienblad naast ons. Ik kreeg een groot glas water en Michiel een groene thee set. Het was zo stil dat ik niet durfde te vragen of hij hier eerder geweest was.
