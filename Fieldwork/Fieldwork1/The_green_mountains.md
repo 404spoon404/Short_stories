@@ -9,5 +9,3 @@ She saw how it hurt him to pick up the warm mug with his cold hands. From the ba
 Heinz went into the house after taking a look at the limping cow. Although he found it was nothing serious Dieter still wanted to stay in the stables. Keeping watch. "Hallo?" He yelled in the hallway. "Come in, come in." Grethe called back from the front kitchen. He found his own mug allready waithing for him on the kitchen table. As he sat down Grethe was hobbeling around getting the milk and sugar and putting some cookies on a plate. The mug had a small chip on the rim from when he had dropped it years ago. Since then it was his mug and it had been standing, waiting for him as he came by. "How is Clara?" she asked, sitting down. "She will be fine. A bit of trouble with het hoove. It will heal. She is just getting a bit older." As we all are he thought looking across the table and feeling his cold toes.
 
 
-
- 
